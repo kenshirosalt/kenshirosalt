@@ -1,0 +1,2 @@
+osaka in real life
+
