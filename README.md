@@ -1,5 +1,4 @@
-osaka in real life
+hallo!! hallo!! hallo!! hallo!!
 
-this is my main acc btw....
 
-https://gamefaqs.gamespot.com/boards/585451-alphabet-zoo/25414232?page=3
+this is my main account....
